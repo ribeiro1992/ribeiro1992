@@ -11,5 +11,5 @@ edemilson.ribeiro@escola.pr.gov.br
 
 @edemilsonribeiro92
 
-![](https://tenor.com/pt-BR/view/professor-dumbledore-grisetti-josh-harry-potter-gif-18163058)
+![](https://media1.tenor.com/m/2lCoAAOAvUsAAAAC/dumbledore-frustrated.gif)
 

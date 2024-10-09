@@ -11,5 +11,5 @@ edemilson.ribeiro@escola.pr.gov.br
 
 @edemilsonribeiro92
 
-![](https://media.tenor.com/8giTupvlSFYAAAAj/school-penguin.gif)
+![](https://tenor.com/pt-BR/view/professor-dumbledore-grisetti-josh-harry-potter-gif-18163058)
 
